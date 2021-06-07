@@ -1,2 +1,0 @@
-# projetoFinalAndroid
-# projetoFinalAndroid
